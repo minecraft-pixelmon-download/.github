@@ -1,6 +1,6 @@
 # Minecraft Pixelmon Download - Minecraft Mod Setup and Adventure Guide
 
-![Pixelmon Download guide with Minecraft mod setup, server options, and adventure checklist](https://avatars.mds.yandex.net/i?id=93468a00481dab71f36c5d9d392f7ad73c5e242ed37a9af8-12720093-images-thumbs&n=13)
+![Pixelmon Download guide with Minecraft mod setup, server options, and adventure checklist](https://avatars.mds.yandex.net/i?id=8e289647222976aabc12aa2dcfbdc829-4055732-images-thumbs&n=13)
 
 ## Pixelmon Download Overview
 
